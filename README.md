@@ -1,1 +1,1 @@
-# SarutiMam
+# Saruti Mam Teaching AI trends
